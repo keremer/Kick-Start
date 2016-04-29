@@ -20,4 +20,7 @@ All these efforts were hidden in the Pandora's (in this context "my") box for ye
 Now those will get explicated... Nothing very special actually. I just need help!
 This readme will grow up!
 
+More about me here:
+http://tr.linkedin.com/in/ercoskunk
+
 Hello World!
